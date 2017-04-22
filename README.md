@@ -1,2 +1,2 @@
-This repository has posters I have made with information on recycling.
+This repository has posters made by me with information on recycling.
 
